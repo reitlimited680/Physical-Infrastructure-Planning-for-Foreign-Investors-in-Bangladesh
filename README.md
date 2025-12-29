@@ -5,6 +5,7 @@ Bangladesh is rapidly emerging as a key destination for foreign investment. Its 
 
 ## Key Takeaway
 Bangladesh is becoming more attractive to foreign investors because its infrastructure is steadily improving. Better roads, ports, power supply, digital services, and well-planned industrial zones are making it easier for businesses to operate. When combined with decent housing options for employees, these improvements reduce business risks and build investor confidence, helping Bangladesh move toward a stronger position in the global economy.
+
 [Watch this video on YouTube](https://www.youtube.com/watch?v=cEeCYz2_Yxk&t=274s)
 
 ## The Importance of Infrastructure for Investment
